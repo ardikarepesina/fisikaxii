@@ -1,0 +1,2 @@
+# fisikaxii
+Kapasitor Keping Sejajar
